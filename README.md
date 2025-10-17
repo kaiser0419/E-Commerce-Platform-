@@ -86,9 +86,7 @@ TBA
 
 ## 🧑‍💻 Author
 
-**Your Name**
-📧 [your.email@example.com](mailto:your.email@example.com)
-🌐 [Your Portfolio or Website]
+Me, reach me out in yichorkoh@gmail.com or discord #gintoki0419
 
 ---
 
